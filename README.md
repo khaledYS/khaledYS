@@ -15,4 +15,4 @@ Here are some ideas to get you started:
 - 💬 Ask me about any thing and everything
 - 📫 How to reach me: well you can get me on [Twitter](https://twitter.com/notin481) or [Instagram](https://instagram.com/notin482)
 - ⚡ Fun fact: Some people started their journey with "Hello world" but for me, I started my world with "Hello Sh*t" for no reason, that is gorgeous for A js developer.
-- # and purble heart :purple_heart: lover
+- # and pink heart 💜: lover
